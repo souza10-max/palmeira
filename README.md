@@ -1,3 +1,3 @@
-![Captura de tela 2022-01-11 104853](https://user-images.githubusercontent.com/81639067/161617021-b56e3ff3-eca5-426c-99f2-34081835cc74.png)
+![Captura de tela 2022-01-11 104729_LI](https://user-images.githubusercontent.com/81639067/161617199-5742a075-0a35-4794-9212-fdfe31ed8ba1.jpg)
 # palmeira
 oceano
